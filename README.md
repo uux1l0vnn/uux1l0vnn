@@ -21,3 +21,7 @@
 <img src="https://github.com/user-attachments/assets/0e5d1dc0-2bd7-4ca8-a3af-7e91a3425099"width=47% height=47%>
 
 ***
+
+<h4 align="center">
+﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
+</h4> 
