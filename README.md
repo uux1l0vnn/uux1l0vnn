@@ -16,7 +16,7 @@
 
 𖹭 ࣪ 𓈒 ⊹ ㅤ f𝓇  ﾉ  en𝑔 +  𝓁e𝓈𝒷𝒾a𝓃  ! 　 <img src="https://64.media.tumblr.com/e8b5e6f211917883bf3f273b26c01513/c9daa743765a1be0-aa/s400x600/8f62b4e0fb629b0311361a6c2378f3baa180a008.pnj" width=6% height=6%>
 
- ꒰  𝒶m𝒷𝒾𝓋𝑒rt  ꒱⠀⠀° ⠀    ʚɞㅤ۫  𝟎𝟓  ﾉ  𝟏𝟏    ㆍ      ១ 
+ ꒰  𝒶m𝒷𝒾𝓋𝑒rt  ꒱⠀⠀° ⠀    ʚɞㅤ۫  0𝟓  ﾉ  𝟏1    ㆍ      ១ 
 <h5 align="center">
 <img src="https://github.com/user-attachments/assets/0e5d1dc0-2bd7-4ca8-a3af-7e91a3425099"width=47% height=47%>
 
