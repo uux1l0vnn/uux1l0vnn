@@ -1,7 +1,7 @@
 ***
 <h5 align="center">
   
-<img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/> [' ' Rise up into my.. World!! . . ♥ ' '](https://open.spotify.com/episode/5krrpmcylkaNyPWdWwDxg3) <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/>
+<img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/> [﹒  ◠   '𝒞𝒶𝓊𝓈𝑒 𝓌𝑒 𝓃𝑒𝓋𝑒𝓇 𝑔𝑜 𝑜𝓊𝓉 𝑜𝒻 𝓈𝓉𝓎𝓁𝑒   ⊹    ﹒](https://open.spotify.com/intl-fr/track/1hjRhYpWyqDpPahmSlUTlc?si=dc8002a143e3439d) <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/>
 <h5 align="center">
 <img src="https://github.com/user-attachments/assets/725b2ee3-6e23-4678-b5b2-10a1bdbd775d"width=47% height=47%>
 </h5>  
@@ -25,12 +25,3 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 <img src="https://github.com/user-attachments/assets/0e5d1dc0-2bd7-4ca8-a3af-7e91a3425099"width=47% height=47%>
 
 ***
-<p align ="center">
-<img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/> <img src="https://xyz.crd.co/assets/images/gallery07/3bc960ad.gif?v=4ca63763"/>
-</p>
-
-crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics !!
-
-made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv"/>
-
-
