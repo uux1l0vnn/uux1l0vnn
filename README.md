@@ -3,7 +3,7 @@
   
 <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/> [' ' Rise up into my.. World!! . . ♥ ' '](https://open.spotify.com/episode/5krrpmcylkaNyPWdWwDxg3) <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/>
 <h5 align="center">
-<img src="https://64.media.tumblr.com/7bea89088ffa5b93bf2d2a8fa2e14238/33c129c1226d76ac-10/s400x600/c6efc37456169a45f999b703b7f0c6fa8e8b646a.pnj"/>
+<img src="https://github.com/user-attachments/assets/725b2ee3-6e23-4678-b5b2-10a1bdbd775d"/>
 </h5>  
 
 <h4 align="center">
@@ -22,7 +22,7 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 </h4> 
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/06c568d4f42c309fb67d75884fc9cafb/33c129c1226d76ac-bc/s400x600/27ca806d9e9d455f0975357c431e24a05ab32169.pnj"/>
+<img src="https://github.com/user-attachments/assets/0e5d1dc0-2bd7-4ca8-a3af-7e91a3425099"/>
 
 ***
 <p align ="center">
