@@ -3,14 +3,14 @@
   
 <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/> [﹒  ◠   'C𝒶u𝓈𝑒 w𝑒 𝓃𝑒ve𝓇 𝑔o 𝑜ut o𝒻 𝓈ty𝓁𝑒   ⊹    ﹒](https://open.spotify.com/intl-fr/track/1hjRhYpWyqDpPahmSlUTlc?si=dc8002a143e3439d) <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/>
 <h5 align="center">
-<img src="https://github.com/user-attachments/assets/725b2ee3-6e23-4678-b5b2-10a1bdbd775d"width=47% height=47%>
+<img src="https://github.com/user-attachments/assets/725b2ee3-6e23-4678-b5b2-10a1bdbd775d"width=50% height=50%>
 </h5>  
 
 <h4 align="center">
 𝜗𝜚 ﹐,   ㅤ 𝓈h𝑒  ﾉ  𝒽er  ╭・ 𝓃av𝒾a 𝑜𝓇 n𝒶v  ! 　  ⋆ 
 </h4> 
 <h5 align="center">
-<img src="https://github.com/user-attachments/assets/62160ab0-3f0e-428f-a74a-b526e3f82da4"width=50% height=50%>
+<img src="https://github.com/user-attachments/assets/62160ab0-3f0e-428f-a74a-b526e3f82da4"width=60% height=60%>
 </h5>  
 <h4 align="center">
 
@@ -18,7 +18,7 @@
 
  ꒰  𝒶m𝒷𝒾𝓋𝑒rt  ꒱⠀⠀° ⠀    ʚɞㅤ۫  0𝟓  ﾉ  𝟏1    ㆍ      ១ 
 <h5 align="center">
-<img src="https://github.com/user-attachments/assets/0e5d1dc0-2bd7-4ca8-a3af-7e91a3425099"width=47% height=47%>
+<img src="https://github.com/user-attachments/assets/0e5d1dc0-2bd7-4ca8-a3af-7e91a3425099"width=50% height=50%>
 
 ***
 
